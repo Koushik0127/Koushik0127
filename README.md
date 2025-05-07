@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 I'm currently studying @ SKIT College of Engineering<br>I'm looking to collaborate on<br>I'm looking for help with<br>I'm currently learning<br>Ask me about<br>
 
 
